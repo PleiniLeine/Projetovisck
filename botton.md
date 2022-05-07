@@ -1,1 +1,1 @@
-é aqui que a cobre fuma !]
+é aqui que a cobra fuma !
